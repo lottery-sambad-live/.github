@@ -1,7 +1,6 @@
 
-### **GitHub README Article: Lottery Sambad - A Digital Resource for Enthusiasts and Developers**
+### **Lottery Sambad - A Digital Resource for Enthusiasts and Developers**
 
-**Title:** Navigating the World of Lottery Sambad: A Guide to Digital Resources
 
 #### **Introduction**
 
