@@ -21,7 +21,7 @@ While the official state lottery departments release the results, finding them i
 
 #### **A Recommended Resource for Lottery Sambad Results**
 
-For a dedicated and streamlined portal to check all Lottery Sambad results, you can visit **[Lottery Sambad](https://lotterysambadtoday.app/)**.. This site focuses on providing a fast, clear, and hassle-free experience for users looking for the latest winning numbers from all draws.
+For a dedicated and streamlined portal to check all Lottery Sambad results, you can visit **[Lottery Sambad](https://lotterysambad.codes/)**.. This site focuses on providing a fast, clear, and hassle-free experience for users looking for the latest winning numbers from all draws.
 
 
 
