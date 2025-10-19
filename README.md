@@ -1,0 +1,2 @@
+# .github
+Lottery-sambad-dev
